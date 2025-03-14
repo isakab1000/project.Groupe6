@@ -12,10 +12,10 @@ NOM MEMBRES DU GROUPE 6
 3-)DONOUGBO D. Ignace; 67971326; donougboignace@gmail.com
 
 4-)OUSMANE Salia; 65619882; saliaousmane02@gmail.com
-
 5-)OLOU Agué Martin; 90900155; aguemartinolou@gmail.com
 
-6-) OLADE Ange Seive; 0157966570; angeoladeloko@gmail.com
+6-) LOKO Oladé Ange Sèïvè
+0157966570;angeoladeloko1@gmail.com
 
 7-)ABALLO CHOUTA K.A.Ezékiel;53401570;aezekiel872@gmail.com
 
