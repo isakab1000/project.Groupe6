@@ -4,6 +4,7 @@ Compétences visées :
 ✅ Manipulation des collections (ArrayList, HashMap).
 ✅ Gestion des fichiers pour la sauvegarde des contacts.
 NOM MEMBRES DU GROUPE 6
+
 1-)ISSIFOU Abdou Kabirou; 57665188 ;abdoukabirouissifou@gmail.com
 
 2-)SERO Tamou; 64832585; serotamouseni@gmail.com
